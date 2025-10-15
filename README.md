@@ -1,6 +1,6 @@
 # <p align="center">海外直播平台有哪些？2025最受欢迎的国外直播平台排名</p>
 
-<p align="center">最近更新于：2025年9月18日</p>
+<p align="center">最近更新于：2025年10月15日</p>
 
 ![海外直播平台有哪些？最受欢迎的国外直播平台推荐](https://raw.githubusercontent.com/chinavpns/overseas-live/refs/heads/main/image/%E5%9B%BD%E5%A4%96%E7%9B%B4%E6%92%AD%E5%B9%B3%E5%8F%B0%E6%8E%A8%E8%8D%90.png)
 
